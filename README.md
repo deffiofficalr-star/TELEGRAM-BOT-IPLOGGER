@@ -42,8 +42,8 @@
 
 **📬 Связь со мной**
 
-- Telegram: @твой_никнейм
-- Telegram канал: @название_канала
+- Telegram: @NathanDrakeps
+- Telegram канал: @bytefps
 
 ---
 
